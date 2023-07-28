@@ -1,0 +1,5 @@
+- 👋 oi, eu sou a @zontinha 
+- 👀 eu  tenho interesse em estudar 
+- 🌱  atualmente estou apreendeno pensamento computacional
+- 💞️ estou procurando colaborar em ajudar as pessoas 
+- 📫 como chegar ate a mim, me mandando mensagem no insta:_zontasz
